@@ -4,7 +4,6 @@
 - 🥳 Tenho 20 anos de idade.
 - 🏡 Moro em Campinas, São Paulo.
 - ❤️ Apaixonado por tecnologia.
-- ⚡ Um grande fã de animes.
 
 ##
 
